@@ -1,1 +1,0 @@
-# ginknocab.github.io
